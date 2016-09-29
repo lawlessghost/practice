@@ -1,13 +1,18 @@
 # TINA IS THE BEST
 ## THE GREATEST 
 ### THE NINJA OF DREAMS
+
 [kek](https://www.lawsonisawesome.com)
+
 Ordered List
+
 1. boobs
 2. doobs
 2.1 loobs
 3. rubes
+
 Unordered List
+
 - Don't be
 - crude
 
